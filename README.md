@@ -1,2 +1,2 @@
 # JavaLogicSim
-Kursach nado bilo sdelat'
+Курсач... Что тут еще скажешь..?
